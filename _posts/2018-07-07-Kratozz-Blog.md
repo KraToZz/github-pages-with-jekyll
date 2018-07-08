@@ -1,0 +1,6 @@
+---
+title: "KRATOZZ-BLOGS"
+date: 2018-07-07
+---
+
+**LETS GET THIS STARTED**
